@@ -1,4 +1,4 @@
-#  
+#  sol's rng no-ban Script is the best sol's rng Script, featuring custom skins and silent aim. Safe and powerful for all your needs.
 
 
 
